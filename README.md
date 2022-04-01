@@ -15,10 +15,10 @@ Check out my [**Youtube Channel**](https://youtube.com) today :smiley:
 
 I love answering questions and helping others, feel free to reach out to me to discuss technology!
 
-- Connect with me on [**LinkedIn**](https://www.linkedin.com/in/chanakya-lokam-b8565b22/)
-- DM me on [**Instagram**](https://www.instagram.com/chanakyalokam/) if you want :grinning:
-- Watch my videos and ask questions on my [**Youtube Channel**](https://github.com/clokam13/clokam13/issues)
-- 💬 Ask me anything at [**here**]()
+- 👨‍💼 Connect with me on [**LinkedIn**](https://www.linkedin.com/in/chanakya-lokam-b8565b22/)
+- 🖼️ DM me on [**Instagram**](https://www.instagram.com/chanakyalokam/) if you want :grinning:
+- 📺 Watch my videos and ask questions on my [**Youtube Channel**](https://github.com/clokam13/clokam13/issues)
+- 💬 Ask me anything [**here**]()
 
 ## What's coming up?
 
